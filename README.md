@@ -1,0 +1,1 @@
+# Anime_analysis_project
